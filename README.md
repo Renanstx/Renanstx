@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil Renanstx 😁
+## Bem-vindo(a) ao perfil Renanstx 💻
 
  <div>
    <a href="https://github.com/Renanstx
